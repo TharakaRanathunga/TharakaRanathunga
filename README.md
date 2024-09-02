@@ -1,4 +1,4 @@
-Hi there :raising_hand_woman:I’m **TharakaRanathunga**
+Hey there :raising_hand_woman:I’m **TharakaRanathunga**
 
 I’m interested in technology and learning foreign languages.
 I’m currently learning Industrial Information Technology at LAB University of Applied Sciences [https://lab.fi/fi], Lahti, Finland.
