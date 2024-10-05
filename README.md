@@ -4,7 +4,7 @@ I’m interested in technology and learning foreign languages.
 I’m currently learning Industrial Information Technology at LAB University of Applied Sciences [https://lab.fi/fi], Lahti, Finland.
 You can reach me at tsranathunga@gmail.com and [https://www.linkedin.com/feed/].
 I use GitHub to save my projects.
-My hobbies are reading books and travelling.
+My hobbies are reading books, music and travelling.
 I have good communication skills in, 
 - Sinhala 
 * English
